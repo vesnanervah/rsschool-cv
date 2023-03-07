@@ -1,1 +1,1 @@
-https://vesnanervah.github.io/rsschool-cv/cv
+https://vesnanervah.github.io/rsschool-cv/
